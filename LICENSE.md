@@ -1,4 +1,4 @@
-
+hooked smart Scripts offers the most advanced hooked Script, with speed and private server access. Perfect for dominating any match.
 
 
 
